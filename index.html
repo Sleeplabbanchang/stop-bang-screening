@@ -1,1 +1,0 @@
-# stop-bang-screening
